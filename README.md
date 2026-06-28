@@ -8,7 +8,7 @@ Here are some ideas to get you started:
 ## 🔭 I’m currently pursuing my B.Tech degree in CSE at NIT Calicut
 - 🌱 I’m 
 -->
-## 🔭 I’m currently pursuing my B.Tech degree in CSE at NIT Calicut
+## 🔭 I’m completed my B.Tech degree in CSE at NIT Calicut
 
 
 ## 🌐 Socials:
